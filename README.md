@@ -1,1 +1,1 @@
-# dekopinda-kota-padangsidempuan
+# dekopinda-karanganyar
